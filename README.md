@@ -1,1 +1,2 @@
 "<h1> GamiCoin </h1>" 
+What about a cryptocurrency that unifies all games ingame game coin/credit so then every game will use this cryptocurrency to let players buy ingame items or sell them or upgrade their items for this currency, the GamiCoin project is all about to achive this goal!
